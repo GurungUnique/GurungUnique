@@ -1,4 +1,4 @@
-## Hi there,Soc Unique Gurung 👋
+## Hi there,I'm Unique 👋
 
 <!--
 **GurungUnique/GurungUnique** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
